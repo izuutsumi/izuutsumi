@@ -1,3 +1,5 @@
-![tumblr_cb98fc1b40b9ed989c53868dac7b2514_010e4cb8_1280](https://github.com/izuutsumi/izuutsumi/assets/126152287/8b530662-d2ca-4a6d-9295-41fc5b011095)
-![tumblr_999fe157f4e7051486e56a7e32c68fd7_3deee410_1280](https://github.com/izuutsumi/izuutsumi/assets/126152287/3402917b-913f-44d2-bcc3-0c5c1937e3c3)
-![tumblr_01a034afb663ec192d8385c117cab4f8_a1f2e783_1280](https://github.com/izuutsumi/izuutsumi/assets/126152287/1a9deec9-9458-4fe3-a875-3d2db49ee9d0)
+![tumblr_c51f41df148704d7525e81349e29ea1e_a9eea763_2048](https://github.com/izuutsumi/izuutsumi/assets/126152287/c27315b1-6592-4683-ab37-b3fa97bfa166)
+![tumblr_7d0d16bf6d1468376b14e1a491c45af8_254b28f2_2048](https://github.com/izuutsumi/izuutsumi/assets/126152287/0175b061-2998-498a-8f91-621aa838a045)
+![tumblr_c943e90a7ce9a99254070ad4ea2617a5_1809e3bb_1280](https://github.com/izuutsumi/izuutsumi/assets/126152287/fbdb48b6-6f1d-4f30-98e7-eb85dbe5fd7d)
+![tumblr_7d0d16bf6d1468376b14e1a491c45af8_254b28f2_2048](https://github.com/izuutsumi/izuutsumi/assets/126152287/05ac8014-da1e-4f32-a3e5-b511b771fb18)
+![tumblr_a9166a437ae5c68f81edda93b1755a14_c5cf9cfa_2048](https://github.com/izuutsumi/izuutsumi/assets/126152287/9db67177-b87c-4221-a754-acc89292fec8)
